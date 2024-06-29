@@ -1,1 +1,1 @@
-Sum Prac 2024 lol
+Summer Practice 2024
